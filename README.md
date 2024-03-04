@@ -8,3 +8,4 @@
 7. restart pc
 8. new epic games account
 9. enjoy :)
+https://cdn.discordapp.com/attachments/1191792227408683018/1214210923376676894/image.png?ex=65f8490b&is=65e5d40b&hm=3912b084001620cc53fbe62c8c366b99b61b24b95c15b58b70246fae5cda6fba&
